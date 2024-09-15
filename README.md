@@ -7,3 +7,4 @@ Silahkan gunakan format berikut:<br>
 
 Berikut adalah daftar yang diterima:
 * Oon Arfiawandi, [oo.or.id](https://oo.or.id).
+* Gilang Ramadhan, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
